@@ -1,1 +1,1 @@
-## Welcome to James Kon GithubPage
+## Welcome to James Kon Github Page
